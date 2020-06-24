@@ -1,1 +1,1 @@
-Hi and welcome to my meesterproof repo
+Hi, and welcome to mai meesterproof repo
